@@ -14,6 +14,8 @@ We make things as simple as they really are.
 > _„Meme them until they cry. Then make memes about them crying”_\
 > \- Sun Tzu, *The Art of War*
 
+> Violence is not the answer, but it is always an option.
+
 # Why?
  * for shits and giggles
  * so you don't have to
